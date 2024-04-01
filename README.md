@@ -42,7 +42,8 @@
 ## Taekwondo
 
 ## FMA ( Fillipino Martial Arts )
-
+### Youtube Channels
+[@Maul565](https://www.youtube.com/@Maul565)
 ## Boxing
 
 ## Sambo
@@ -54,3 +55,8 @@
 [TECHNIQUES SAMBO - CEINTURE ORANGE](https://youtu.be/1RuihA6NwOA?si=775kv-HPuk5GE2c1)
 
 [TECHNIQUES SAMBO - CEINTURE JAUNE](https://youtu.be/msTMu2htASU?si=_8fkTTjJz3wUXw9l)
+
+## JUDO
+
+### Youtube Channels
+[@TheJudoWayofLife](https://www.youtube.com/@TheJudoWayofLife/featured)
