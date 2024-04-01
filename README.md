@@ -2,7 +2,7 @@
 
 ## Parkour and Freerunning
 
-### Youtube Vids
+### Youtube Vids & Playlists
 [Parkour and Freerunning - Ultimate Beginners Guide](https://www.youtube.com/watch?v=gXTzunSQnGM)
 
 ### Youtube Channels
@@ -11,7 +11,7 @@
 
 ## JKD
 
-### Youtube Vids
+### Youtube Vids & Playlists
 
 ### Youtube Channels
 
@@ -36,4 +36,9 @@
 
 ## Boxing
 
-## 
+## Sambo
+
+### Youtube Vids & Playlists
+[TECHNIQUES SAMBO - CEINTURE VERTE](https://youtu.be/SkzGKXglu8k?si=ACneyOj5MVLQXQ0M)
+[TECHNIQUES SAMBO - CEINTURE ORANGE](https://youtu.be/1RuihA6NwOA?si=775kv-HPuk5GE2c1)
+[TECHNIQUES SAMBO - CEINTURE JAUNE](https://youtu.be/msTMu2htASU?si=_8fkTTjJz3wUXw9l)
