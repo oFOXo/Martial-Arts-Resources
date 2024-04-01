@@ -25,7 +25,7 @@
 ## Muay Thai
 
 ## BJJ
-###Youtube Vids & Playlists
+### Youtube Vids & Playlists
 [@GracieBreakdown](https://www.youtube.com/@GracieBreakdown)
 
 
@@ -36,7 +36,7 @@
 ## Kickboxing
 
 ## Savate
-###Youtube Vids & Playlists
+### Youtube Vids & Playlists
 [Mastering Savate - Salem Assli](https://youtube.com/playlist?list=PLuV246wiL0hWiP9kUiOsICVZzxLePnTOJ&si=h5th4eodrYidszUV)
 
 ## Taekwondo
