@@ -19,18 +19,25 @@
 [Tao of Jeet Kune Do](https://www.google.co.in/books/edition/_/g37ysgEACAAJ?hl=en&sa=X&ved=2ahUKEwjFxfiew6CFAxVyV2wGHSHmD3QQ7_IDegQICxAE)
 
 ## Aikido
-[@Shinburenseijyuku](https://www.youtube.com/@Shinburenseijyuku)
 ### Youtube Channels
+[@Shinburenseijyuku](https://www.youtube.com/@Shinburenseijyuku)
 
 ## Muay Thai
 
 ## BJJ
+###Youtube Vids & Playlists
+[@GracieBreakdown](https://www.youtube.com/@GracieBreakdown)
+
 
 ## Capoeira
+### Youtube Vids & Playlists
+[How to Do Capoeira](https://youtube.com/playlist?list=PLD57755E647234751&si=O9bwIinYreNkJe-U)
 
 ## Kickboxing
 
 ## Savate
+###Youtube Vids & Playlists
+[Mastering Savate - Salem Assli](https://youtube.com/playlist?list=PLuV246wiL0hWiP9kUiOsICVZzxLePnTOJ&si=h5th4eodrYidszUV)
 
 ## Taekwondo
 
