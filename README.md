@@ -26,6 +26,7 @@
 [@Shinburenseijyuku](https://www.youtube.com/@Shinburenseijyuku)
 
 ## Muay Thai
+### Youtube Vids & Playlists
 
 ## BJJ
 ### Youtube Vids & Playlists
@@ -37,17 +38,20 @@
 [How to Do Capoeira](https://youtube.com/playlist?list=PLD57755E647234751&si=O9bwIinYreNkJe-U)
 
 ## Kickboxing
+### Youtube Vids & Playlists
 
 ## Savate
 ### Youtube Vids & Playlists
 [Mastering Savate - Salem Assli](https://youtube.com/playlist?list=PLuV246wiL0hWiP9kUiOsICVZzxLePnTOJ&si=h5th4eodrYidszUV)
 
 ## Taekwondo
+### Youtube Vids & Playlists
 
 ## FMA ( Fillipino Martial Arts )
 ### Youtube Channels
 [@Maul565](https://www.youtube.com/@Maul565)
 ## Boxing
+### Youtube Vids & Playlists
 
 ## Sambo
 
