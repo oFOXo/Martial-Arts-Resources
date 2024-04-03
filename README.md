@@ -22,17 +22,21 @@
 [Tao of Jeet Kune Do](https://www.google.co.in/books/edition/_/g37ysgEACAAJ?hl=en&sa=X&ved=2ahUKEwjFxfiew6CFAxVyV2wGHSHmD3QQ7_IDegQICxAE)
 
 ## Aikido
+### Youtube Vids & Playlists
+[How to Do Aikido](https://youtube.com/playlist?list=PL970B7BDB368DB950&si=FRtkR1a9qVO5AL4d)
 ### Youtube Channels
 [@Shinburenseijyuku](https://www.youtube.com/@Shinburenseijyuku)
 
 ## Muay Thai
 ### Youtube Vids & Playlists
+[How to Do Muay Thai Kickboxing](https://youtube.com/playlist?list=PL1F1D2DC858208841&si=qrUDhpMSf6GqSGxz)
 ### Youtube Channels
 
 ## BJJ
 ### Youtube Vids & Playlists
-[@GracieBreakdown](https://www.youtube.com/@GracieBreakdown)
+[Brazilian Jiu Jitsu](https://youtube.com/playlist?list=PL42D49E654C1A5F05&si=AJp6rVLbwQrFIm-b)
 ### Youtube Channels
+[@GracieBreakdown](https://www.youtube.com/@GracieBreakdown)
 
 
 ## Capoeira
@@ -52,6 +56,7 @@
 
 ## Taekwondo
 ### Youtube Vids & Playlists
+[How to Do Taekwondo](https://youtube.com/playlist?list=PLLALQuK1NDrilnFdWWyC6qoJkSam7DSel&si=LhlV9kavf7d7f3kE)
 ### Youtube Channels
 
 ## FMA ( Fillipino Martial Arts )
@@ -79,3 +84,13 @@
 
 ### Youtube Channels
 [@TheJudoWayofLife](https://www.youtube.com/@TheJudoWayofLife/featured)
+
+## MMA
+### Youtube Vids & Playlists
+[MMA Fighting Techniques](https://youtube.com/playlist?list=PL14CA107F0D3B6732&si=tNnfZhtav71wIeHd)
+[How to Do MMA Submission Holds](https://youtube.com/playlist?list=PLLALQuK1NDrhWzO_Voh44foRbw1Ei7Ce5&si=eii1SmKgSF92u6Xs)
+
+## Krav Maga
+### Youtube Vids & Playlists
+[Krav Maga Self-Defense Techniques](https://youtube.com/playlist?list=PLLALQuK1NDrhbNpRSUEAloceyNEMzcKzN&si=4D_zeBYWDUiVKFRD)
+[Krav Maga Classes](https://youtube.com/playlist?list=PL59sCVifcXA3z_5J8P8GlVZsp4od-5gnR&si=JzQA8ofnq8QS5pPL)
