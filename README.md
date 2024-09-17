@@ -155,4 +155,15 @@ An Illustrated Introduction](https://www.google.co.in/books/edition/Aikido_and_t
 
 [Sanda Basics 03](https://youtu.be/S3jqJzGP6lE?si=BTb66ikPvHAiZS-l)
 
+## Chin-Na / Qin-Na
+
+### Youtube Vids & Playlists
+
+[Shaolin Chin Na](https://youtu.be/i7dAXJ8hsPY?si=QAu0s2TnRDA57hyC)
+
+### Books
+
+[Analysis of Shaolin chin na](https://www.amazon.com/Analysis-Shaolin-Chin-Na-Instructors/dp/1594390002)
+
+
 
